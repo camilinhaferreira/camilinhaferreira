@@ -1,4 +1,4 @@
-Iabely Santos E Camila Ferreira
+Isabely Santos E Camila Ferreira
 moramos em Figueira
 Temos 15 anos
 @_camila.ferreira7
